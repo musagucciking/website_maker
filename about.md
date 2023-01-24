@@ -1,5 +1,6 @@
 # The Story of Moses
 
-The story of Moses begins in the age of Pharoes, Acient Egypt. 
+The story of Moses begins in Acient Egpyt. 
 
-One night Pharoe had a terrifying dream. He dreamt that a new-born child from the tribe of Israel will kill him and take his kingdom away. He ordered all his soldiers to kill all new born babies in Egypt.
+One night, The Pharoah had a dream. He dreamt the a new-born child from the children of Israel would rise up and take his kingdom away from him.
+
