@@ -1,6 +1,6 @@
 # DEMO 3
 
 
-# MOSES
+# The Story of Moses
 
-The story of Moses begins in Acient Egypt.
+The story of Moses begins in the age of Pharoes, in Acient Egypt.
